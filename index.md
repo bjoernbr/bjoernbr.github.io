@@ -7,3 +7,7 @@ Robin McLaurin Williams (* 21. Juli 1951 in Chicago, Illinois; † 11. August 20
 * Eight Is Enough (Fernsehserie)
 * America 2-Night (Fernsehserie)
 * Happy Days (Fernsehserie) (2 Folgen als Mork vom Ork)
+
+
+## Zitate
+>Männer haben ein Hirn und einen Penis, aber nur soviel Blut, dass nur eins von beiden >funktioniert!
