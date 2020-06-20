@@ -10,4 +10,6 @@ Robin McLaurin Williams (* 21. Juli 1951 in Chicago, Illinois; † 11. August 20
 
 
 ## Zitate
->Männer haben ein Hirn und einen Penis, aber nur soviel Blut, dass nur eins von beiden >funktioniert!
+> Männer haben ein Hirn und einen Penis, aber nur soviel Blut, dass nur eins von beiden funktioniert!
+
+<img src="https://upload.wikimedia.org/wikipedia/commons/0/05/Robin_Williams_2011a_%282%29.jpg"/>
